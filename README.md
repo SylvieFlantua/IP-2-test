@@ -3,5 +3,4 @@
 When I think of physics ...
 I cry
 of joy, that is
-after Aaron,
-mirrored as no Raa.
+as tears are great refractors for light.
